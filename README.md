@@ -3,7 +3,7 @@
 
 <div align="center">
     
-![image](https://upload.wikimedia.org/wikipedia/commons/9/91/Pizza-3007395.jpg)
+![image](https://b.zmtcdn.com/data/pictures/chains/7/2700047/ce0341e58cf96f163101b4dff77ed938.jpg?fit=around|960:500&crop=960:500;*,*)
 
 </div>     
 
