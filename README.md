@@ -3,7 +3,7 @@
 
 <div align="center">
     
-![image](https://github.com/sharanya-27/pizza_sales_analysis/assets/142989454/9ac41c33-bd49-4c78-8124-4fc5b3c091ec)
+![image](https://github.com/https://www.istockphoto.com/photo/supreme-pizza-slice-lift-gm153784617-15019095?irclickid=wdPWmN2DIxyZRBbwKRTDXW3nUkuwHFTvnU3Fw00&irgwc=1&afsrc=1&cid=IS&utm_medium=affiliate&utm_source=Coverr&clickid=wdPWmN2DIxyZRBbwKRTDXW3nUkuwHFTvnU3Fw00&utm_term=image_term_page&utm_campaign=&utm_content=258824&irpid=1203981)
 
 </div>     
 
